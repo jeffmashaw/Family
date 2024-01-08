@@ -1,5 +1,0 @@
-MV - Colossians 1:18
-
-[[Session 105]]
-
-[[Adoniram Bible]]
